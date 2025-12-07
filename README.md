@@ -1,1 +1,1 @@
-https://github.com/Rinara-cl/zakrivayuschiy-teg-f
+https://github.com/lunta121/zakrivayuschiy-teg-f
